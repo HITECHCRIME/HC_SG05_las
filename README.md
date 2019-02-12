@@ -104,3 +104,26 @@ aggro mnie wzięło
 wyjąłęm me ego
 co ja wziąłem to życie w ręce
 przed siebie samego to już czas, mosty podpalę
+
+stack
+tak
+brak
+rak
+szlak
+trakt
+wrak
+znak
+
+bez ciebie 
+nie chcę tu żyć
+nie chcę tu żyć
+jeśli to ma tak być
+
+zakońćz ten stack, zakończ te  run
+coś jest nie tak gdzie jest mój fam
+ziemia to wrak, ludzie to rak
+wskażę wam szlak, wskażę wam szlak
+wytyczymy sobie własny trakt
+
+pokaż swój znak, pokaż swój stan
+w rubryce imię wpisane mam brak
