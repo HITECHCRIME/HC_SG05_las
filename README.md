@@ -1,6 +1,8 @@
 # HC_SG05_las
 Hitech Crime Single 'Las'
 
+Tribal feel song, the crew, bass, drums.
+
 [PREHOOK]
 zakończ ten stack, zakończ ten run
 coś jest nie tak, no gdzie jest mój fam
@@ -97,3 +99,8 @@ powiedz pozostańmy raz bezmyślni
 bez strachu otwórz na nowo oczy - zacznij
 trakt tego szlaku z lasu wyjmie nas wyrwie z trzewi czasu 
 wirtualne lśnienie kiedy chcesz umierać potem obudź się i zaśnij
+
+aggro mnie wzięło
+wyjąłęm me ego
+co ja wziąłem to życie w ręce
+przed siebie samego to już czas, mosty podpalę
