@@ -5,13 +5,13 @@ Tribal feel song, the crew, bass, drums.
 
 [PREHOOK]
 zakończ ten stack, zakończ ten run
-coś jest nie tak, no gdzie jest mój fam
+coś jest nie tak, no gdzie jest mój fam (ten)
 ziemia to stash, ludzie to mash 
 okazje w terenie to przecież jest ice
 biegnę przez las, biegnę przez las
 szukam tu światła nie ulgi dla mas
 
-przeszkód jest w bród, czuję ten chłód
+przeszkód tu w bród, czuję ten chłód
 czuję ten piekielny jebany chłód ej
 
 —-buildup—-
